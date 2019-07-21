@@ -129,6 +129,7 @@ charlotte's web - e.b.white.mobi
 资中筠自选集(套装共5册).mobi
 缔造苹果神话-乔布斯传 - 威廉·西蒙.mobi
 中国哲学简史.mobi
+为什么：关于因果关系的新科学.mobi
 冯•诺伊曼传.mobi
 只是为了好玩.mobi
 徐志摩诗全集.mobi
